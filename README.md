@@ -6,7 +6,7 @@
 
 🎓 Je suis passionné par la Psychologie (Générale et Criminelle), ainsi que certains domaines informatique comme l'OSINT, le Forensic et la Stéganographie.
 
-👨‍🎓  Vous pouvez m'add sur Discord : AlDuelz#0001 ou rejoindre mon serveur discord : https://discord.gg/alduelz.
+👨‍🎓  Vous pouvez m'add sur Discord : AlDuelz#0001 ou rejoindre mon serveur discord : https://discord.gg/alduelz (Challenges OSINT Réguliers).
 
 ✈️ Bonne découverte de mon Profil ! ✈️
 
