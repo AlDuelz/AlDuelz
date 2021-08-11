@@ -1,5 +1,6 @@
 
 ![alt text](https://i.imgur.com/8Ykgi4F.gif)
+![alt text](https://i.imgur.com/JFlmg4a.gif)
 
 
 👋 Salut moi c'est AlDuelz, jeune Étudiant de 19 ans.
