@@ -1,3 +1,5 @@
+![alt text](https://i.imgur.com/V6fTX0B.gif)
+
 👋 Salut moi c'est AlDuelz, jeune Étudiant de 19 ans.
 
 🎓 Je suis passionné par la Psychologie (Générale et Criminelle), ainsi que certains domaines informatique comme l'OSINT, le Forensic et la Stéganographie.
