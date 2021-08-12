@@ -17,5 +17,4 @@ Mes compétences :
 ![OSINT](https://i.imgur.com/jfFtf5Y.gif)
 ![Forensic](https://i.imgur.com/2Vgaqey.gif)
 ![Crypto](https://i.imgur.com/K7OYhkM.gif)
-![Stegano](https://i.imgur.com/KaBub63.gif)
 
