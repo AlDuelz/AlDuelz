@@ -1,7 +1,7 @@
 ![alt text](https://i.imgur.com/V6fTX0B.gif)
 
 
-👋 Salut moi c'est AlDuelz, jeune Étudiant de 20 ans.
+👋 Salut moi c'est AlDuelz, jeune Étudiant de 20 ans en deuxième année de BTS.
 
 🎓 Je suis passionné par la Psychologie (Troubles Mentaux, Générale, Criminelle), ainsi que certains domaines informatiques.
 
