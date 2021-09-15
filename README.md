@@ -23,8 +23,12 @@ ________________________________________________________________________________
 Quelques liens utiles :
 
 Mes autres réseaux : https://linktr.ee/alduelz
+
 CNIL : https://www.cnil.fr/fr/le-droit-leffacement-supprimer-vos-donnees-en-ligne (Dont lien RGPD : https://www.cnil.fr/fr/reglement-europeen-protection-donnees)
+
 Tails : https://tails.boum.org/install/win/index.fr.html
+
 Vérifiez la véracité d'une information : https://www.lemonde.fr/verification/
+
 Achat Base de données BtoC/BtoB : https://www.easyfichiers.com/
 
