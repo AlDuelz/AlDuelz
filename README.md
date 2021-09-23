@@ -1,7 +1,7 @@
 ![alt text](https://i.imgur.com/V6fTX0B.gif)
 
 
-👋 Salut moi c'est AlDuelz, jeune Étudiant de 20 ans atteint de Troubles du Spectre Autistique (Asperger) et de nombreuses commorbidités, actuellement en au chômage. (La honte iléchomeur)
+👋 Salut moi c'est AlDuelz, jeune Étudiant de 20 ans atteint de Troubles du Spectre Autistique (Asperger) et de nombreuses commorbidités, temporairement au chômage. (La honte iléchomeur)
 
 🎓 Je suis passionné par la Psychologie (Troubles Neurodéveloppementaux et psychiques, Générale, Sociologie, Criminelle), ainsi que certains domaines informatiques et notamment la Cybersécurité dans son ensemble.
 
