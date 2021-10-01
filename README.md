@@ -26,9 +26,8 @@ Mes autres réseaux : https://linktr.ee/alduelz
 
 CNIL : https://www.cnil.fr/fr/le-droit-leffacement-supprimer-vos-donnees-en-ligne (Dont lien RGPD : https://www.cnil.fr/fr/reglement-europeen-protection-donnees)
 
+Ressources menaces numériques : https://www.cybermalveillance.gouv.fr/tous-nos-contenus/actualites/liste-des-ressources-mises-a-disposition
+
 Tails : https://tails.boum.org/install/win/index.fr.html
 
-Vérifiez la véracité d'une information : https://www.lemonde.fr/verification/
-
-Achat Base de données BtoC/BtoB : https://www.easyfichiers.com/
 
