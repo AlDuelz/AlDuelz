@@ -26,7 +26,7 @@ Mes autres réseaux : https://linktr.ee/alduelz
 
 CNIL : https://www.cnil.fr/fr/le-droit-leffacement-supprimer-vos-donnees-en-ligne (Dont lien RGPD : https://www.cnil.fr/fr/reglement-europeen-protection-donnees)
 
-Victime de Cybermalveillance ? https://www.cybermalveillance.gouv.fr/diagnostic/accueil
+Victime de Cybermalveillance ? https://www.cybermalveillance.gouv.fr/diagnostic/accueil Victime de contenus illicites sur Internet ? https://www.internet-signalement.gouv.fr/PortailWeb/planets/Accueil!input.action
 
 Tails : https://tails.boum.org/install/win/index.fr.html
 
