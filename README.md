@@ -1,5 +1,3 @@
-![alt text](https://i.imgur.com/V6fTX0B.gif)
-
 
 👋 Salut moi c'est AlDuelz, jeune adulte de 20 ans atteint de Troubles du Spectre Autistique (Asperger) et de nombreuses commorbidités, temporairement au chômage. (La honte iléchomeur)
 
