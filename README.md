@@ -1,5 +1,5 @@
 
-👋 Salut moi c'est AlDuelz, jeune adulte de 20 ans Autiste Asperger (et de nombreuses commorbidités) temporairement au chômage. (La honte iléchomeur)
+👋 Salut moi c'est AlDuelz, jeune adulte de 20 ans atteint du Syndrome d'Asperger (et de nombreuses commorbidités) temporairement au chômage. (La honte iléchomeur)
 
 🎓 Je suis passionné par la Psychologie (Troubles Neurodéveloppementaux et psychiques, Générale, Sociologie, Criminelle), ainsi que certains domaines informatiques et notamment la Cybersécurité dans son ensemble.
 
