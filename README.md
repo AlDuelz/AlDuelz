@@ -12,6 +12,7 @@ ________________________________________________________________________________
 Mes compétences :
 
 ![Criminology](https://i.imgur.com/mYiyrqz.gif)
+![Audit IT](https://i.imgur.com/21iR4UU.gif)
 ![OSINT](https://i.imgur.com/jfFtf5Y.gif)
 ![Forensic](https://i.imgur.com/2Vgaqey.gif)
 ![Crypto](https://i.imgur.com/K7OYhkM.gif)
