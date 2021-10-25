@@ -1,4 +1,5 @@
 
+
 👋 Salut moi c'est AlDuelz, jeune adulte de 20 ans atteint du Syndrome d'Asperger (Troubles du Spectre Autistique) et de nombreuses commorbidités, je suis temporairement au chômage. (La honte iléchomeur)
 
 🎓 Je suis passionné par la Psychologie (Troubles Neurodéveloppementaux et psychiques, Générale, Sociologie, Criminelle), ainsi que certains domaines informatiques et notamment la Cybersécurité dans son ensemble.
@@ -9,7 +10,7 @@
 
 _________________________________________________________________________________________________________________________________________________________________________________
 
-Mes compétences :
+![Gif d'introduction](https://i.imgur.com/Wd4fKLn.gif)
 
 ![Criminology](https://i.imgur.com/mYiyrqz.gif)
 ![Audit IT](https://i.imgur.com/21iR4UU.gif)
