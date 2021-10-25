@@ -2,7 +2,7 @@
 
 👋 Salut moi c'est AlDuelz, jeune adulte de 20 ans atteint du Syndrome d'Asperger (Troubles du Spectre Autistique) et de nombreuses commorbidités, je suis temporairement au chômage. (La honte iléchomeur)
 
-🎓 Je suis passionné par la Psychologie (Troubles Neurodéveloppementaux et psychiques, Générale, Sociologie, Criminelle), ainsi que certains domaines informatiques et notamment la Cybersécurité dans son ensemble.
+🎓 Je suis passionné par la Psychologie (Médicale, Sociale, Sociologie, Criminologique) ainsi que certains domaines informatiques et la Cybersécurité dans son ensemble.
 
 👨‍🎓  Vous pouvez m'add sur Discord : AlDuelz#0001 ou rejoindre mon serveur discord : https://discord.gg/alduelz (Challenges OSINT Réguliers).
 
