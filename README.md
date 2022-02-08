@@ -4,7 +4,7 @@
 
 🎓 Je suis passionné par la Psychologie (Médicale, Sociale, Sociologie, Criminologique) ainsi que certains domaines informatiques et la Cybersécurité dans son ensemble.
 
-👨‍🎓  Vous pouvez m'add sur Discord : AlDuelz#0001 ou rejoindre mon serveur discord : https://discord.gg/alduelz (Challenges OSINT Réguliers).
+👨‍🎓  Vous pouvez m'add sur Discord : Al'#0001 ou rejoindre mon serveur discord (Supprimé) : https://discord.gg/alduelz (Challenges OSINT Réguliers).
 
 ✈️ Bonne découverte de mon Profil ! ✈️
 
