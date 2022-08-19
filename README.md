@@ -6,6 +6,8 @@
 
 👨‍🎓  Vous pouvez m'add sur Discord : Al'#0001 ou rejoindre mon serveur discord (Supprimé) : https://discord.gg/alduelz (Challenges OSINT Réguliers).
 
+Pour mes poèmes sur l'Humanité et la Spiritualité, merci de me demander directement en message privé Discord.
+
 ✈️ Bonne découverte de mon Profil ! ✈️
 
 _________________________________________________________________________________________________________________________________________________________________________________
